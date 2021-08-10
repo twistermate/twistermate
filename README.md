@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @twistermate
-- 👀 I’m interested in ...
+
 - 🌱 I’m currently learning ...
 - Iam a noob😜
 
